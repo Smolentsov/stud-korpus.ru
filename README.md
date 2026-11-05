@@ -1,0 +1,1 @@
+# stud-korpus.ru
